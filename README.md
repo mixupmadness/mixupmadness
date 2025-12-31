@@ -9,7 +9,7 @@ hi :) i welcome people taking inspo from my layout, but please dont steal from i
     <p align="center">
         ${\textsf{\color{#49ba42} TEL / SUBS}}$
  <br> 
-      ${\textsf{\color{#49ba42}　　he　/　hym　✩　AUDHD EDS　✩　darkheart yumedanshi}}$ 
+      ${\textsf{\color{#49ba42}　　he　/　hym　✩　AUDHD EDS　✩　darkheart gachikoi}}$ 
  <br>
        <p align="center"> 
           <img src="https://github.com/mixupmadness/mixupmadness/blob/main/image_2025-10-07_005730973__fliter--sea__channel--green__mode--darken.png"/>
