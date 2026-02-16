@@ -15,7 +15,8 @@ hi :) i welcome people taking inspo from my layout, but please dont steal from i
           <img src="https://github.com/mixupmadness/mixupmadness/blob/main/image_2025-10-07_005730973__fliter--sea__channel--green__mode--darken.png"/>
      <br> ${\textsf{\color{#49ba42}plz w2i, im usually off-tab!!　　notoriously awkward but friendly :)}}$ 
  <br>
-          <br> 
+        https://rentry.co/mixxedupmadness
+        <br> 
       ${\textsf{\color{#49ba42}　　< 10 / 25 / 23 + 8 / 8 / 25 3}}$ 
          <br>
     <div align="center">
