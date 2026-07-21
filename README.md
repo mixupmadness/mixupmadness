@@ -7,7 +7,7 @@ hi! i welcome people taking inspo from my layout, but please dont steal from it 
  <p align="center">
  <img src="https://github.com/mixupmadness/mixupmadness/blob/57901593d18a557843ca5477f6aca0d6b80e37d9/image-6cfb-gradientmap.pro.png"width="300"/>
 <p align="center"> 
- ${\textsf{\color{#91E542}∿　⁺　　ANDREW / TEL 　.　　ꜜ　he / hym　——}}$
+ ${\textsf{\color{#91E542}∿　⁺　　ANDREW 　.　　ꜜ　he / hym / vamp　——}}$
  <p align="center"> 
 　 ${\textsf{\color{#91E542}ᵔ　　unlabeled　 ┊　masc　　⌓⌓}}$
 <p align="center"> 
