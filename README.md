@@ -11,7 +11,7 @@ hi! i welcome people taking inspo from my layout, but please dont steal from it 
  <p align="center"> 
 　 ${\textsf{\color{#91E542}ᵔ　　unlabeled　 ┊　masc　　⌓⌓}}$
 <p align="center"> 
-　 ${\textsf{\color{#91E542}:　　audhd eds　 ,　 yumeshipper　𓈒　　❀　　｡　 ˳ᴗ ᴗ)}}$
+　 ${\textsf{\color{#91E542}:　　darkhearts one and only !　　⸝⸝ ♡　𓈒　　❀　　｡　 ˳ᴗ ᴗ)}}$
  <p align="center"> 
   https://rentry.co/mixupmadness
  <p align="center"> 
